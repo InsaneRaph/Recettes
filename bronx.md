@@ -2,10 +2,10 @@
 
 ## Ingrédients :
 
-* 0.4 oz de gin	 
-* 0.5 oz de vermouth rouge (martini, cinzano)	 Martini Rosso
-* 0.5 oz de vermouth dry (martini, noilly prat)	 Martini Dry
-* 0.6 oz de jus d'oranges
+* 4.5 cl de gin	 
+* 1.5 cl de vermouth rouge (martini, cinzano)	 Martini Rosso
+* 1.5 cl de vermouth dry (martini, noilly prat)	 Martini Dry
+* 3 cl de jus d'oranges
 
 ## Instructions :
 schtroumpfez la recette "Bronx" au shaker. 
