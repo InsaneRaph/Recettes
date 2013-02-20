@@ -2,8 +2,8 @@
 	
 ## Mojito 
 Ingrédients pour 1 personne
-*4 oz de rhum cubain (havana club, bacardi)	 Rhum cubain
-*2 oz de jus de citrons verts	 jus de citrons verts
+*12 cl de rhum cubain (havana club, bacardi)	 Rhum cubain
+*6 cl de jus de citrons verts	 jus de citrons verts
 *7 feuilles de menthe	eau gazeuse (perrier, salvetat)	 eau gazeuse (perrier, badoit)
 *2 cuillères à café de sucre	 sirop de sucre de canne
 
