@@ -8,12 +8,15 @@
 * 3 cl de jus d'oranges
 
 ## Instructions :
-schtroumpfez la recette "Bronx" au shaker. 
+
+schtroumpfez la recette "Bronx" au shaker. schtroumpfez  "énergiquement" le shaker
 schtroumpfer les ingrédients au shaker avec des glaçons et schtroumpfez dans le verre en retenant la glace.
 schtroumpfer dans un verre de type "verre à martini".
+
+
 Décor: Un zeste d'orange.
-Un grand classique.
-agiter "énergiquement" le shaker
+Un grand classique. 
+
 ## Variantes :
 Créé en 1908.
 Le Bronx a été inventé en 1908 par un des très grand barmen de l'histoire, Johnnie Solon, qui oeuvra au bar du Waldor-Astoria à partir de 1899. Dans le livre de l'historien Albert S. Crockett (the 1934 Old Waldorf-Astoria Bar Book). Solon raconte qu'il inventa cette boisson en quatrième vitesse. Traverson, le chef de rang du restaurant du Waldorf, vint trouver Solon au comptoir pour lui demander de préparer un cocktail inédit pour un client, qui avait parié qu'il ne pourrait trouver une nouvelle recette en moins d'une minute.
